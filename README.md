@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mslondi
+- 👋 Hi, I’m @Rolanda Clark
 - 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...setup my profile
 - 💞️ I’m looking to collaborate on ...launching a web page
